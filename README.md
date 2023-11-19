@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ledemondujeup5
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...ffff
+- 🌱 I’m currently learning ...fffffgfggfg
 - 📫 How to reach me ...
 18181
 <!---2222
