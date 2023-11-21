@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ledemondujeup5
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...fffffgfggfg
-- 📫 How to reach me ...
+- 📫 How to reach me ...c
 18181
 <!---2222
 ledemondujeup5/ledemondujeup5 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
